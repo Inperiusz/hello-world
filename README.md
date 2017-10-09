@@ -1,2 +1,3 @@
 # hello-world
 ez egy mételyes retkes reszponzitás lesz tesám
+20 éves vagyok de azt mondják 25 .... nem értem miért ilyen bánat a kicsi márk ... 
